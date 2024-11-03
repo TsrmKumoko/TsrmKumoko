@@ -1,5 +1,6 @@
-- 👋 Hi, I’m @TsrmKumoko
-- 🥰 Do what you love
+- 👋 Hi, 我是 徐云岫, XJTU EE Graduate
+- 🏳️‍⚧️ 是Transgender woman
+- 🥰 爱好很多, 想法也很多, 但是容易烂尾
 <!-- - 💞️ I’m looking to collaborate on ... -->
 <!-- - 📫 How to reach me ... -->
 
